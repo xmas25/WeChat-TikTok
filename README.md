@@ -51,7 +51,7 @@
 
 > 是的，他们真的就是这么认为，“只要 xxx，就能 xxx”，“只要外界 xxx 条件能达到自我凭空杜撰的超现实预期，就能解决 xxx 问题，不然都是垃圾，是坏我前程、挡我去路的垃圾”。
 
-![](https://upload-images.jianshu.io/upload_images/57036-c5eaac87240aa06c.image?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://upload-images.jianshu.io/upload_images/57036-c5eaac87240aa06c.image)
 
 —— 他们不知道自己完全是在 “<mark>从自己的主观私欲出发 **凭空想象**</mark>”，而这种天马行空、极致的想象永无止境、**纵使当下的人类生产力能够即刻予以兑现，也永远没有填满的那一天**。所以他们总是一脸怨念、并不快乐，觉得 “造化弄人”、**“生不逢时”**。
 
